@@ -55,12 +55,14 @@ N   - Newcomes and News&Publication
 O   - Others & Unscreened & EvrryThinkStsarts with 0
 
 AaA - Admin and Assistance ( conrol regulation support - reps from all groups)
+
+
+
 new category
+
+
+
 lingvist-yazikoved
-
-
-
-
 
 
 
