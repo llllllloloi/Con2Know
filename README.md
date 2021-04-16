@@ -67,3 +67,4 @@ lingvist-yazikoved
 
 
 ws
+.
