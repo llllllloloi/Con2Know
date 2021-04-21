@@ -28,8 +28,8 @@ What is content?
 
 What is Knowledge?
 
-What best describes community organization or a compny than? (Pause)
-Yes! you guessed it Organizational chart!!!
+What best describes community organization or a company than? (Pause)
+Yes! you guessed it Organization chart!!!
 However, it may seem strange at first, as there are no structures or familiar 
 who reports whom. Rather,
 like #HumansBrain which is the most fascinating {object} in the
